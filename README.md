@@ -1,0 +1,1 @@
+Recessed light adapter allowing mounting of lights originally designed for drywall (such as SLV WORO, https://www.slv.com/cs-cz/product/1002922) to a European 68mm wall box like Kopos KP 68_KA (https://www.kopos.cz/cs/produkt/2880-krabice-pristrojova).
